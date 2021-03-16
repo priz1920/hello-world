@@ -6,4 +6,7 @@ Change from local version
 
 Rabotaet???
 
-ne ponyztno  =((
+ne ponyatno  =((
+
+vot kak
+
